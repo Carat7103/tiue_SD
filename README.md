@@ -1,1 +1,2 @@
-# tiue_SD
+RI_103 
+Abdusalomov Sarvar 
